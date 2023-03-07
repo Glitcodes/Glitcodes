@@ -13,7 +13,9 @@ As a software engineer, I am a problem-solver who is always looking for innovati
 Overall, I am talented and versatile creative who is passionate about his craft. I am always pushing the boundaries of what is possible, and my dedication to my work has earned me the respect and admiration of my clients and peers alike.
 
 
+Find me here:
 
+[Twitter] (https://mobile.twitter.com/Glitcodes) [Facebook] (https://www.facebook.com/official.bassey.john)
 
 
 
